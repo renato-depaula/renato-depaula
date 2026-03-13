@@ -1,4 +1,4 @@
-# 👨‍💻 Olá! Eu sou o Renato
+# 🧑‍🦱 Olá! Eu sou o Renato
 
 🎓 Estudante de tecnologia  
 💻 Aprendendo programação e automação  
